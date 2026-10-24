@@ -1,0 +1,1 @@
+# ha7ider-store-2026
